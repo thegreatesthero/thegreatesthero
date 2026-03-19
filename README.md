@@ -8,4 +8,10 @@
 
  ______
 
- ```test hiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii```
+ ```NOW PLAYING: Anthems For A Seventeen Year-Old Girl — I Saw the TV Glow```
+
+###### hiii welcome to my github,, call me ali or my cosplay's name idm
+[main](https://github.com/solsonnenstrahl) 。[strawpage](https://alistaniahazenxir.straw.page/) ok bye
+
+ ______
+ 
